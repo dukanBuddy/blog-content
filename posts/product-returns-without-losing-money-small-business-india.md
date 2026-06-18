@@ -1,9 +1,9 @@
 ---
-title: "How to Manage Product Returns Without Losing Money — Small Business India Guide"
+title: "vbcbbbbbbbbbbbbbbb"
 slug: "product-returns-without-losing-money-small-business-india"
-metaTitle: "How to Manage Product Returns Without Losing Money — Small Business India Guide"
-metaDescription: "How to handle product returns for your small business in India without losing money. Smart return policies and DukanBuddy's return management system."
-description: "How to handle product returns for your small business in India without losing money. Smart return policies and DukanBuddy's return management system."
+metaTitle: "Manage Product Returns Without Losing Money India | DukanBuddy"
+metaDescription: "cvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv"
+description: "cvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv"
 category: "Business Strategy"
 author: "DukanBuddy Team"
 date: "2026-06-18"
